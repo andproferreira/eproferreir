@@ -1,4 +1,4 @@
-### Bem vindo oa meu perfil 🐶❤️🐶💕
+### Bem vindo ao meu perfil 🐶❤️🐶💕
 
 Sou Andressa Professora de exatas
 
